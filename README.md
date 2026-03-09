@@ -26,7 +26,7 @@ Dieses Repository dient der systematischen Sammlung und Organisation von Informa
 
 ## Über NWO
 
-Die Neue Weltordnung (NWO) wird in Verschwörungstheorien oft als eine Art Sekte organisiert beschrieben, mit hierarchischen Strukturen und ideologischen Kontrollen. Es wird behauptet, dass sie NLP (Neuro-Linguistisches Programmieren) und Drogen verwenden, um ihre Opfer zu schädigen. Selbst in die Computerspiele von Kindern unter 12 Jahren hacken sich diese Nazis hinein, um Angst und Schrecken zu verbreiten.
+Die Neue Weltordnung (NWO) wird in Verschwörungstheorien oft als eine Art Sekte organisiert beschrieben, mit hierarchischen Strukturen und ideologischen Kontrollen. Es wird behauptet, dass sie NLP (Neuro-Linguistisches Programmieren) und Drogen verwenden, um ihre Opfer zu schädigen. Selbst in die Computerspiele von Kindern unter 12 Jahren hacken sich diese Nazis hinein, um Angst und Schrecken zu verbreiten. Die ganzen Außmaße mit Oberlandesgerichtentscheidung zeigen auf, dass hier Beamte tief involviert sind. Alle offiziellen Eintragungen oder von offiziellen Stellen herausgegebenen Meldungen dazu müssen von einem Verfassungsschutz untersucht werden.
 
 ## Quellen
 
