@@ -33,5 +33,11 @@ Total videos: 1,792
 ## Latest News
 - Became a football referee (from Braunschweiger Zeitung)
 
+## News Articles
+- Wieder Ärger für KuchenTV: Strafbefehl wegen Nazi-Parole: https://www.ndr.de/nachrichten/niedersachsen/braunschweig_harz_goettingen/tim-heldt-kuchentv-angeblich-verhaspelt-16000-euro-strafe,kuchentv-102.html
+
+## Forum Entries
+- No forum entries found.
+
 ## Additional Notes
 - Impressum: Tim Heldt Filmherstellung c/o Werneburg Internet Marketing und Publikations-Service, Philipp-Kühner-Straße 2, 99817 Eisenach

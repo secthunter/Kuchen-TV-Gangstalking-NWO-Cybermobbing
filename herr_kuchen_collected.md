@@ -56,6 +56,12 @@ From Genius:
 - Feud with Jindo109: Ex-Pärchen Herr Kuchen und Jindo109 liefern sich offenen Schlagabtausch (from raptastisch.net, 2026-02-13)
 - Jindo must pay a four-figure sum of money to Kuchen (from Reddit)
 
+## News Articles
+- Ex-Pärchen - Herr Kuchen und Jindo109 liefern sich offenen Schlagabtausch: https://raptastisch.net/2026/02/13/ex-paerchen-herr-kuchen-und-jindo109-liefern-sich-offenen-schlagabtausch/
+
+## Forum Entries
+- Reddit: Jindo must pay a four-figure sum of money to Kuchen: https://www.reddit.com/r/GermanRap/comments/1jo2uyk/jindo_muss_vierstellige_geldsumme_an_kuchen_zahlen/
+
 ## Additional Notes
 - Monthly Listeners on Spotify: 113,600 (from existing data)
 - Popular Tracks: Tanke in Frankreich (feat. Genetikk) - 641,217 plays, etc. (from existing)
